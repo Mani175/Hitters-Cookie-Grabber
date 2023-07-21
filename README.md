@@ -1,2 +1,2 @@
 # Hitters-cookie-grabber
-https://discord.gg/RJzy46ZfdK remade version of pirate famm
+https://discord.gg/tyydEHK3 remade version of pirate famm
